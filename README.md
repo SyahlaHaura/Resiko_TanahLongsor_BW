@@ -1,0 +1,1 @@
+# Resiko_TanahLongsor_BW
